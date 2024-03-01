@@ -1,0 +1,1 @@
+# fujimoto42.github.io
